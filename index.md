@@ -9,3 +9,7 @@ Ein lebendiges Skelett, trägt meist Anzug und Hut. Er ist ein Elementemagier, d
 * powerful
 * dark past, bright future
 * has good friends
+
+As Skulduggery Pleasant said:
+
+>Hi
