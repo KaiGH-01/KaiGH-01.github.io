@@ -13,3 +13,6 @@ Ein lebendiges Skelett, trägt meist Anzug und Hut. Er ist ein Elementemagier, d
 As Skulduggery Pleasant said:
 
 >Hi
+
+<img src="https://www.deviantart.com/shamserg/art/Skulduggery-Pleasant-commission-798779456"/>
+
